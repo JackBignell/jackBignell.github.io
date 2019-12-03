@@ -1,1 +1,1 @@
-# jackBignell.github.io
+Map of my Favorite destinations
